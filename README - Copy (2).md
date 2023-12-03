@@ -1,2 +1,0 @@
-# PLMC-Componentsofpowerfulpositioning
- 
